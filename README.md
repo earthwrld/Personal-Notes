@@ -1,2 +1,2 @@
 # Personal-Notes
-jadi gini....
+Nothing to see here.
